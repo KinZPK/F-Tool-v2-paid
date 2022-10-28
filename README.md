@@ -1,1 +1,1 @@
-# F-Tool-v2-paid
+# F-TOOL-PAID-VERSION
